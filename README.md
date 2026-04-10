@@ -1,1 +1,1 @@
-# Projeto-software-Modulo-5-Diagramas-e-Documentos-T-cnicos--Felipe
+# Projeto-software-Modulo-5-Diagramas-e-Documentos-Tecnicos--Felipe
